@@ -1,2 +1,2 @@
 # my-first-repo
-Hello my name is Yasirah. I am a 23 year old Brooklyn native. I have lived in the same neighborhood and on the same block and you would think I know everyone on it, but I do not. I actually traveled alot gro
+Hello my name is Yasirah. I am a 23 year old Brooklyn native. I enjoy making videos and short films with my friends and I can't wait to create short films with the MArcy Lab family.
